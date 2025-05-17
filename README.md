@@ -4,7 +4,7 @@ noli / hero
 
 they/him/bug ! 
 
-dnc my skins unless close friend.
+dnc or take inspo from my skins pls, though copying/taking inspo for my hacks is ok
 
 dni if youre doing the skin snatching trend
 
