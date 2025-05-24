@@ -14,5 +14,7 @@ BMFFFFFFFF!!! actively recovering system
 
 recipromantic, turning 31🔁 on 06/20
 
+my wife, ria ♡
+
 ![image](https://github.com/user-attachments/assets/2ec3aa1c-8ad5-4f8b-8617-7953f5968dbb)
 (all the art shown is mine)
